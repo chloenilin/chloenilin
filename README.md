@@ -11,5 +11,5 @@
 
 ### ✦ ℒ𝒾𝓃𝓀𝓈 :
 
-[CHLOE NILIN]([https://chloenilin.framer.website/])
+https://chloenilin.framer.website
 
