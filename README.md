@@ -11,5 +11,5 @@
 
 ### ✦ ℒ𝒾𝓃𝓀𝓈 :
 
-[CHLOE NILIN]([https://sites.google.com/view/nexyeco/main](https://chloenilin.framer.website/))
+[CHLOE NILIN]([https://chloenilin.framer.website/])
 
